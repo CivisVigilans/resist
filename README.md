@@ -1,2 +1,2 @@
 # resist
-Resources for the Resistance
+Resources for resisting authoritarian takeover in the U.S.
